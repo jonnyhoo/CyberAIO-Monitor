@@ -18,7 +18,4 @@ Vk:    https://vk.com/doodjjeer
 Twitter:     https://twitter.com/doodjjer 
 
 
-![alt text](https://i.yapx.ru/CiV3V.jpg)
-
-
-![alt text](https://i.yapx.ru/CiV4T.jpg)
+![alt text](https://i.yapx.ru/CiW0V.jpg)
